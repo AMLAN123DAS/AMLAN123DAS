@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AMLAN123DAS
-- 👀 I’m interested in ...coding(BEGGINER)
+- 👀 I’m interested in ...coding
 - 🌱 I’m currently learning ...JAVA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...EMAIL(dasamlan329@gmail.com), WATSP(8260966822)
